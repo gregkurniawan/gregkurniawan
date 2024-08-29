@@ -7,7 +7,7 @@
 
 - 📫 Let's connect - [LinkedIn](https://www.linkedin.com/in/gregkurniawan/) | [Twitter](https://twitter.com/gregkurniawan1)
 
-- ⚡ Fun fact **On my free time, I enjoy traveling, playing basketball and volleyball, and weight-lifting!!**
+- ⚡ Fun fact **On my free time, I enjoy traveling, playing volleyball and pickleball, and weight-lifting!!**
 
 <h3 align="left">Languages and Tools:</h3>
 <p align="left">
